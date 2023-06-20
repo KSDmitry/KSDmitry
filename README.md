@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KSDmitry and Я РУССИКИЙЙ
+- 👋 Hi, I’m @KSDmitry and Я РУССИКИЙЙ I’m 13 years old
 - 👀 I’m interested in ... making games
 - 🌱 I’m currently learning ... c# what else?
 - 📫 How to reach me ... dkontop90@gmail.com else diimak2010@gmail.com
